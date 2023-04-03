@@ -1,1 +1,1 @@
-# AMMIY![Certificate_AMMIY](https://user-images.githubusercontent.com/81981737/147588113-05effdab-b2f1-428b-9144-66043d36234b.jpg)
+![ammyicoin](https://user-images.githubusercontent.com/121312707/229454949-f405d068-d3ea-44d6-86a2-91dd54b456d2.png)
